@@ -1,3 +1,2 @@
 
-
-<!-[main]-(https://github.com/sexual5)
+[main]-(https://github.com/sexual5)
