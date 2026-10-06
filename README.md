@@ -5,7 +5,7 @@
 
 <img width="250" height="250" alt="IMG_9385" src="https://github.com/user-attachments/assets/88096d84-c865-4445-9d8b-4ccf675de45f" />
 
- ꒰ [main](https://github.com/astralviktor) ㅤ𖹭ㅤ [ata](https://viktorarcane.atabook.org/) ㅤ𖹭ㅤ [prns](https://pronouns.cc/@viktorarcane)꒱
+ ꒰ [main](https://github.com/astralviktor) ㅤ𖹭ㅤ [ata](https://viktorarcane.atabook.org/) ㅤ𖹭ㅤ [prns](https://pronouns.cc/@viktorarcane) ㅤ𖹭ㅤ [typology tt](https://www.tiktok.com/@deerfaithe) ꒱
  
  ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑
 
