@@ -25,6 +25,8 @@
 
  ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑
 
+ .ᐟ**ch freely** + **w2i** <sub>unless i have dni in my name</sub>
+
 ◞ ‸ ◟  .ᐟ**strangers/not close**<sub> interact with caution and common sense at all times</sub>
 
 ᥫ᭡ ═══════════════════════════════════════════════════════════════
