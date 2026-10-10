@@ -3,7 +3,10 @@
  
 ㅤㅤㅤ✶ ˚ ⋆. .˚ **❝  ♖ my distrust is the moat that keeps me alive ⚔︎  ❞** ˚ . ⋆.˚ ✶  ㅤ  ⁻ᵐᵉ
 
-<picture><img width="200" height="150" alt="IMG_9477" src="https://github.com/user-attachments/assets/f61b4f6d-e961-49a9-81eb-e75550e4bca6" /></picture>
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=sexual5)
+
+
+<picture><img width="300" height="200" alt="IMG_9477" src="https://github.com/user-attachments/assets/f61b4f6d-e961-49a9-81eb-e75550e4bca6" /></picture>
 
 
  ꒰ [main](https://github.com/astralviktor) ㅤ𖹭ㅤ [ata](https://viktorarcane.atabook.org/) ㅤ𖹭ㅤ [prns](https://pronouns.cc/@viktorarcane) ㅤ𖹭ㅤ [typology tt](https://www.tiktok.com/@deerfaithe) ꒱
