@@ -9,7 +9,7 @@
 <picture><img width="300" height="200" alt="IMG_9477" src="https://github.com/user-attachments/assets/f61b4f6d-e961-49a9-81eb-e75550e4bca6" /></picture>
 
 
- ꒰ [main](https://github.com/astralviktor) ㅤ𖹭ㅤ [ata](https://viktorarcane.atabook.org/) ㅤ𖹭ㅤ [prns](https://pronouns.cc/@viktorarcane) ㅤ𖹭ㅤ [typology tt](https://www.tiktok.com/@deerfaithe) ꒱
+ ꒰ [main](https://github.com/astralviktor) ㅤ𖹭ㅤ [ata](https://viktorarcane.atabook.org/) ㅤ𖹭ㅤ [prns](https://pronouns.cc/@viktorarcane) ㅤ𖹭ㅤ [awesome art n straw](https://cosmiclatte.straw.page) ꒱
  
  ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑
 
