@@ -1,4 +1,7 @@
 <div align="center">
+ 
+![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=31rwxclllgukvgjp74ub2mvsczhq&theme=transparent&count=3&width=450&logo=0&avatar=0)
+ 
 ᥫ᭡═══════════════════
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=30&pause=1500&color=D977F7&center=true&vCenter=true&width=1400&height=100&repeat=true&lines=my+distrust+is+the+moat+that+keeps+me+alive;I+do+not+have+the+right+to+ask%2C+to+complain;I+do+not+have+the+right+to+exist.;Love+intimidates+me;Love+is+something+dangerous+%26+vindictive;Love+wants+something.;If+I+am+fragile+and+needy;no+one+will+be+able+to+hold+me.)](https://git.io/typing-svg)
