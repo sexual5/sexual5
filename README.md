@@ -1,6 +1,6 @@
 <div align="center">
  
-![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=31rwxclllgukvgjp74ub2mvsczhq&theme=transparent&count=3&width=450&logo=0&avatar=0)
+![Spotify recently played](https://spotify-recently-played.jeffreyca.workers.dev/svg?user=31rwxclllgukvgjp74ub2mvsczhq&theme=transparent&count=1&width=450&logo=0&avatar=0)
  
 ᥫ᭡═══════════════════
 
