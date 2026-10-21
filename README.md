@@ -16,7 +16,7 @@
 <picture><img width="300" height="200" alt="IMG_9477" src="https://github.com/user-attachments/assets/f61b4f6d-e961-49a9-81eb-e75550e4bca6" /></picture>
 
 
- ꒰ [main](https://github.com/astralviktor) ㅤ𖹭ㅤ [ata](https://viktorarcane.atabook.org/) ㅤ𖹭ㅤ [prns](https://pronouns.cc/@viktorarcane) ㅤ𖹭ㅤ [awesome art n straw](https://cosmiclatte.straw.page) ꒱
+ ꒰ [main](https://github.com/astralviktor) [ata](https://viktorarcane.atabook.org/) [prns](https://pronouns.cc/@viktorarcane) [rentry](https://rentry.co/752009) [awesome art](https://cosmiclatte.straw.page) ꒱
  
  ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑︶꒷꒦︶ ๋࣭ ⭑ ๋࣭ 
 
